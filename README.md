@@ -1,6 +1,3 @@
-# atividade-insana
-atividade pro professor 
-
 # Olá! Eu sou [Raul Danton Medardo] 👋
 
 
