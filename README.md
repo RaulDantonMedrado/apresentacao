@@ -1,4 +1,4 @@
-# Olá! Eu sou Raul Danton Medardo
+# Olá! Eu sou Raul Danton Medrado
 
 ### 👨‍💻 Quem sou eu
 
